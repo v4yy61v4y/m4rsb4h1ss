@@ -1,5 +1,5 @@
 <h1>Marsbahis</h1>
-<p>En güvenilir Marsbahis siteleri ile kazançlı oyunların keyfini çıkarın!</p>
+<p>En güvenilir Marsbahis siteleri ile kazançlı oyunlarıns keyfini çıkarın!</p>
 <a href="https://t2m.io/2284401" title="Marsbahis Güncel Giriş">Marsbahis Güncel Giriş</a>
 
 <a href="https://t2m.io/2284401">
